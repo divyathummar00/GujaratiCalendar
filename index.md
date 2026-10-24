@@ -54,4 +54,4 @@ We may update our Privacy Policy from time to time. Any changes will be posted o
 
 ### 6. Contact Us
 If you have any questions or suggestions regarding this Privacy Policy, please contact us at:
-* **Email:** [Your Email Address Here]
+* **Email:** divya.thummar00@gmail.com
